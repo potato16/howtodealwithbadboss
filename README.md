@@ -4,6 +4,8 @@
 ### CÁCH ĐỐI PHÓ VỚI QUẢN LÝ TỒI.
 
 [Source](https://www.thebalance.com/bad-to-the-bone-dealing-with-a-bad-boss-1917714).
+
+
 Bạn mệt mỏi, bực bội, khó chịu. Bạn không còn tinh thần làm việc. Bạn không muốn tiếp xúc với quản lý của bạn. Ông ta bắt nạt, quấy rầy, sai khiến, kỹ tính hay nhỏ mọn.
 
 Ông ta trừ lương bạn, không bao giờ có nhận xét tích cực về bạn. Hay ông ta luôn ỷ lại và không bao giờ hỗ trợ bạn hoàn thành công việc. Không nhận ra khả năng làm việc của bạn hay của những nhân viên khác kiến văn phòng trở lên ko có không khí và ủ rũ.
