@@ -1,12 +1,15 @@
 # howtodealwithbadboss
 
+
 ##CÁCH ĐỐI PHÓ VỚI QUẢN LÝ TỒI.
+
 
 Bạn mệt mỏi, bực bội, khó chịu. Bạn không còn tinh thần làm việc. Bạn không muốn tiếp xúc với quản lý của bạn. Ông ta bắt nạt, quấy rầy, sai khiến, kỹ tính hay nhỏ mọn.
 
 Ông ta trừ lương bạn, không bao giờ có nhận xét tích cực về bạn. Hay ông ta luôn ỷ lại và không bao giờ hỗ trợ bạn hoàn thành công việc. Không nhận ra khả năng làm việc của bạn hay của những nhân viên khác kiến văn phòng trở lên ko có không khí và ủ rũ.
 
 Ông ta là quản lý xấu, xấu tới tận xương tủy. Phải đối phó với những quản lý thế này là thách thức mà rất nhiều nhân viên phải đối mặt. Không quan trọng tính cách của ông ta ra sao, những ý tưởng dưới đây sẽ giúp bạn đối phó với vấn đề này.
+
 
 #Liệu ông ta có biết?
 
